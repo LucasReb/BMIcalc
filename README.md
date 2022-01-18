@@ -37,9 +37,9 @@ Connect with me at [LinkedIn](https://www.linkedin.com/in/lucas-reboucas-silva/)
 
 You can send how many PR's do you want, I'll be glad to analyse and accept them! And if you have any question about the project...
 
-Email-me: stenio.wagner1@gmail.com
+Email-me: lucasreboucas100@gmail.com
 
-Connect with me at [LinkedIn](https://www.linkedin.com/in/steniowagner/)
+Connect with me at [LinkedIn](https://www.linkedin.com/in/lucas-reboucas-silva/)
 
 Thank you!
 
